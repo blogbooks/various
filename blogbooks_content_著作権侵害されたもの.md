@@ -13,6 +13,9 @@
 ### kore-chandao ([https://scratch.mit.edu/users/kore-chandao/](https://scratch.mit.edu/users/kore-chandao/))
 - 03/30確認 [https://scratch.mit.edu/projects/789862648/](https://scratch.mit.edu/projects/789862648/)
 
+### konkoakira ([https://scratch.mit.edu/users/konkoakira/](https://scratch.mit.edu/users/konkoakira/))
+- 03/30確認 [https://scratch.mit.edu/projects/787713670/](https://scratch.mit.edu/projects/787713670/)
+
 ## YouTube
 
 ### しみと愉快な仲間たち ([https://www.youtube.com/@yukainana_kamatati](https://www.youtube.com/@yukainana_kamatati))
