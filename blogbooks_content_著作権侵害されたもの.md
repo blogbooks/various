@@ -16,6 +16,9 @@
 ### konkoakira ([https://scratch.mit.edu/users/konkoakira/](https://scratch.mit.edu/users/konkoakira/))
 - 03/30確認 [https://scratch.mit.edu/projects/787713670/](https://scratch.mit.edu/projects/787713670/)
 
+### daikonoisii ([https://scratch.mit.edu/users/daikonoisii](https://scratch.mit.edu/users/daikonoisii))
+- 03/30確認 [https://scratch.mit.edu/projects/776193966/](https://scratch.mit.edu/projects/776193966/)
+
 ## YouTube
 
 ### しみと愉快な仲間たち ([https://www.youtube.com/@yukainana_kamatati](https://www.youtube.com/@yukainana_kamatati))
