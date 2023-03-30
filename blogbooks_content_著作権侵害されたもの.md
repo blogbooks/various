@@ -10,6 +10,9 @@
 - 03/16確認 Removed Project
 - 03/17確認 [https://scratch.mit.edu/projects/816137648/](https://scratch.mit.edu/projects/816137648/)
 
+### kore-chandao ([https://scratch.mit.edu/users/kore-chandao/](https://scratch.mit.edu/users/kore-chandao/))
+- 03/30確認 [https://scratch.mit.edu/projects/789862648/](https://scratch.mit.edu/projects/789862648/)
+
 ## YouTube
 
 ### しみと愉快な仲間たち ([https://www.youtube.com/@yukainana_kamatati](https://www.youtube.com/@yukainana_kamatati))
