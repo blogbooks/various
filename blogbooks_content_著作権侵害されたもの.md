@@ -28,7 +28,7 @@
 ### ねこのすけ / @Nekonosuke_ ([https://www.youtube.com/@Nekonosuke_](https://www.youtube.com/@Nekonosuke_))
 - 2022/11/18確認 [https://www.youtube.com/watch?v=KJJTHLBYdGk](https://www.youtube.com/watch?v=KJJTHLBYdGk)
 
-### ライトシチュー (不明)
+### らいとしちゅー(現在: ダークしちゅー) ([https://www.youtube.com/@dark-stew](https://www.youtube.com/@dark-stew))
 - 2022/11/18確認 Removed Movie([https://www.youtube.com/watch?v=9GEHwlT5Wp0](https://www.youtube.com/watch?v=9GEHwlT5Wp0))
 
 ### ゆじ村長 ([https://www.youtube.com/@user-by6fy8fe1s](https://www.youtube.com/@user-by6fy8fe1s))
