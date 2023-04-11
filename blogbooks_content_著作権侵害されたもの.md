@@ -11,7 +11,7 @@
 - 03/17確認 Removed Project
 
 ### ilovebatsLTO([https://scratch.mit.edu/users/ilovebatsLTO/](ilovebatsLTO))
-- 04/11確認 https://scratch.mit.edu/projects/831863675
+- 04/11確認 [https://scratch.mit.edu/projects/831863675](https://scratch.mit.edu/projects/831863675)
 
 ### kore-chandao ([https://scratch.mit.edu/users/kore-chandao/](https://scratch.mit.edu/users/kore-chandao/))
 - 03/30確認 [https://scratch.mit.edu/projects/789862648/](https://scratch.mit.edu/projects/789862648/)
