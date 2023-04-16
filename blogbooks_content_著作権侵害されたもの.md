@@ -20,6 +20,9 @@
 ### daikonoisii ([https://scratch.mit.edu/users/daikonoisii](https://scratch.mit.edu/users/daikonoisii))
 - 03/30確認 [https://scratch.mit.edu/projects/776193966/](https://scratch.mit.edu/projects/776193966/)
 
+### kuro_enpitu ([https://scratch.mit.edu/users/kuro_enpitu/](https://scratch.mit.edu/users/kuro_enpitu/))
+- 04/16確認 [https://scratch.mit.edu/projects/832925902/](https://scratch.mit.edu/projects/832925902/)
+
 ## YouTube
 
 ### しみと愉快な仲間たち ([https://www.youtube.com/@yukainana_kamatati](https://www.youtube.com/@yukainana_kamatati))
