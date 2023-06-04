@@ -11,7 +11,7 @@
 - 03/17確認 Removed Project
 
 ### kore-chandao ([https://scratch.mit.edu/users/kore-chandao/](https://scratch.mit.edu/users/kore-chandao/))
-- 03/30確認 [https://scratch.mit.edu/projects/789862648/](https://scratch.mit.edu/projects/789862648/)
+- 03/30確認 Removed Project
 
 ### konkoakira ([https://scratch.mit.edu/users/konkoakira/](https://scratch.mit.edu/users/konkoakira/))
 - 03/30確認 Removed Project
