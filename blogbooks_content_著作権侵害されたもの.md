@@ -5,6 +5,12 @@
 
 ## Scratch
 
+### abareru--------([https://scratch.mit.edu/users/abareru--------/](https://scratch.mit.edu/users/abareru--------/))
+- 06/10確認 [https://scratch.mit.edu/projects/852214145/](https://scratch.mit.edu/projects/852214145/)
+
+### mnop321([https://scratch.mit.edu/users/mnop321/](https://scratch.mit.edu/users/mnop321/))
+- 06/10確認 [https://scratch.mit.edu/projects/852176920/](https://scratch.mit.edu/projects/852176920/)
+
 ### haetataki([https://scratch.mit.edu/users/haetataki/](https://scratch.mit.edu/users/haetataki/))
 - 03/16確認 Removed Project
 - 03/16確認 Removed Project
