@@ -7,6 +7,9 @@
 
 ### abareru--------([https://scratch.mit.edu/users/abareru--------/](https://scratch.mit.edu/users/abareru--------/))
 - 06/10確認 [https://scratch.mit.edu/projects/852214145/](https://scratch.mit.edu/projects/852214145/)
+- 06/10確認 [https://scratch.mit.edu/projects/847171280/](https://scratch.mit.edu/projects/847171280/)
+- 06/10確認 [https://scratch.mit.edu/projects/847197280/](https://scratch.mit.edu/projects/847197280/)
+- 06/10確認 [https://scratch.mit.edu/projects/847198137/](https://scratch.mit.edu/projects/847198137/)
 
 ### mnop321([https://scratch.mit.edu/users/mnop321/](https://scratch.mit.edu/users/mnop321/))
 - 06/10確認 [https://scratch.mit.edu/projects/852176920/](https://scratch.mit.edu/projects/852176920/)
