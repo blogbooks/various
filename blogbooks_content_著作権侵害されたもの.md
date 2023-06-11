@@ -6,7 +6,7 @@
 ## [Scratch](https://scratch.mit.edu/)
 
 ### NIKOPON123([https://scratch.mit.edu/users/NIKOPON123/](https://scratch.mit.edu/users/NIKOPON123/))
-- 06/10確認 [https://scratch.mit.edu/projects/788477044/](https://scratch.mit.edu/projects/788477044/)
+- 06/10確認 Removed Project
 
 ### abareru--------([https://scratch.mit.edu/users/abareru--------/](https://scratch.mit.edu/users/abareru--------/))
 - 06/10確認 [https://scratch.mit.edu/projects/852214145/](https://scratch.mit.edu/projects/852214145/)
