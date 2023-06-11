@@ -63,6 +63,13 @@
 - 2022/12/03確認 [https://yuto.mystrikingly.com/blog/bc1a0dfca0d](https://yuto.mystrikingly.com/blog/bc1a0dfca0d)
 - 2022/12/03確認 [https://yuto.mystrikingly.com/blog/3967c75265e](https://yuto.mystrikingly.com/blog/3967c75265e)
 
+## [荒らし共栄圏フォーラム](https://www.ctkpaarr.org/public/)
+- 2023/06/11確認 [https://www.ctkpaarr.org/public/d/539-subetenohuirutaringuwotu-po-chromebook-eraniyoruhuirutaringuwu-xiao-hua](https://www.ctkpaarr.org/public/d/539-subetenohuirutaringuwotu-po-chromebook-eraniyoruhuirutaringuwu-xiao-hua)
+- 2023/06/11確認 [https://www.ctkpaarr.org/public/d/538-chromebook-huiruta-extension-id-list](https://www.ctkpaarr.org/public/d/538-chromebook-huiruta-extension-id-list)
+- 2023/06/11確認 [https://www.ctkpaarr.org/public/d/367-chromebook-komandopuronputoshierunochu-shifang](https://www.ctkpaarr.org/public/d/367-chromebook-komandopuronputoshierunochu-shifang)
+- 2023/06/11確認 [https://www.ctkpaarr.org/public/d/368-chromebook-uebusaitohenoburotsukuhui-bi-fang-fa](https://www.ctkpaarr.org/public/d/368-chromebook-uebusaitohenoburotsukuhui-bi-fang-fa)
+- 2023/06/11確認 [https://www.ctkpaarr.org/public/d/369-chromebook-quickview-exploitnitsuitejie-shuo](https://www.ctkpaarr.org/public/d/369-chromebook-quickview-exploitnitsuitejie-shuo)
+
 ## Skatoo (不明)
 
 ### 5b43ABCJ (不明)
