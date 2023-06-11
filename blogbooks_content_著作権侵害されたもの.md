@@ -3,7 +3,7 @@
 ここに載っているものはBlogBooksのコンテンツを著作権侵害した可能性が高いもののみです。他にもあると思いますが一旦運営が把握しているものを記載してます。   
 不明なのはいつ把握したかの記録がなかったものやそれについてのURLがなかったもの
 
-## Scratch
+## [Scratch](https://scratch.mit.edu/)
 
 ### NIKOPON123([https://scratch.mit.edu/users/NIKOPON123/](https://scratch.mit.edu/users/NIKOPON123/))
 - 06/10確認 [https://scratch.mit.edu/projects/788477044/](https://scratch.mit.edu/projects/788477044/)
@@ -35,7 +35,7 @@
 ### kuro_enpitu ([https://scratch.mit.edu/users/kuro_enpitu/](https://scratch.mit.edu/users/kuro_enpitu/))
 - 04/16確認 [https://scratch.mit.edu/projects/832925902/](https://scratch.mit.edu/projects/832925902/)
 
-## YouTube
+## [YouTube](https://youtube.com)
 
 ### しみと愉快な仲間たち ([https://www.youtube.com/@yukainana_kamatati](https://www.youtube.com/@yukainana_kamatati))
 - 03/29確認 [https://www.youtube.com/watch?v=6J5VGDvgeB4](https://www.youtube.com/watch?v=6J5VGDvgeB4)
@@ -50,12 +50,12 @@
 ### ゆじ村長 ([https://www.youtube.com/@user-by6fy8fe1s](https://www.youtube.com/@user-by6fy8fe1s))
 - 不明 [https://www.youtube.com/watch?v=KH7qMhIHrD0](https://www.youtube.com/watch?v=KH7qMhIHrD0)
 
-## Google Site
+## [Google Site](https://site.google.com)
 
 ### PK175のブログ ([https://sites.google.com/view/test9012123/home](https://sites.google.com/view/test9012123/home))
 - 2022/11/28確認 [https://sites.google.com/view/test9012123/%E8%A8%98%E4%BA%8B1](https://sites.google.com/view/test9012123/%E8%A8%98%E4%BA%8B1)
 
-## strikingly (https://www.strikingly.com/)
+## [strikingly](https://www.strikingly.com/)
 
 ### Yuto ([https://yuto.mystrikingly.com/](https://yuto.mystrikingly.com/))
 - 2022/12/03確認 [https://yuto.mystrikingly.com/blog/youtube-31acfbff-2911-4f69-ab4c-cf1acc33cd09](https://yuto.mystrikingly.com/blog/youtube-31acfbff-2911-4f69-ab4c-cf1acc33cd09)
@@ -70,7 +70,7 @@
 - 2023/06/11確認 [https://www.ctkpaarr.org/public/d/368-chromebook-uebusaitohenoburotsukuhui-bi-fang-fa](https://www.ctkpaarr.org/public/d/368-chromebook-uebusaitohenoburotsukuhui-bi-fang-fa)
 - 2023/06/11確認 [https://www.ctkpaarr.org/public/d/369-chromebook-quickview-exploitnitsuitejie-shuo](https://www.ctkpaarr.org/public/d/369-chromebook-quickview-exploitnitsuitejie-shuo)
 
-## Skatoo (不明)
+## Skatoo
 
-### 5b43ABCJ (不明)
+### 5b43ABCJ
 - 01/14確認 Removed Post
