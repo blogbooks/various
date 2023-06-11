@@ -44,8 +44,8 @@
 ### ねこのすけ / @Nekonosuke_ ([https://www.youtube.com/@Nekonosuke_](https://www.youtube.com/@Nekonosuke_))
 - 2022/11/18確認 [https://www.youtube.com/watch?v=KJJTHLBYdGk](https://www.youtube.com/watch?v=KJJTHLBYdGk)
 
-### らいとしちゅー(現在: ダークしちゅー) ([https://youtube.com/@Chinchibdssfghhddfchsexucjgggg](https://youtube.com/@Chinchibdssfghhddfchsexucjgggg))
-- 2022/11/18確認 Removed Movie([https://www.youtube.com/watch?v=9GEHwlT5Wp0](https://www.youtube.com/watch?v=9GEHwlT5Wp0))
+### らいとしちゅー (Removed)
+- 2022/11/18確認 Removed Movie
 
 ### ゆじ村長 ([https://www.youtube.com/@user-by6fy8fe1s](https://www.youtube.com/@user-by6fy8fe1s))
 - 不明 [https://www.youtube.com/watch?v=KH7qMhIHrD0](https://www.youtube.com/watch?v=KH7qMhIHrD0)
@@ -57,11 +57,11 @@
 
 ## [strikingly](https://www.strikingly.com/)
 
-### Yuto ([https://yuto.mystrikingly.com/](https://yuto.mystrikingly.com/))
-- 2022/12/03確認 [https://yuto.mystrikingly.com/blog/youtube-31acfbff-2911-4f69-ab4c-cf1acc33cd09](https://yuto.mystrikingly.com/blog/youtube-31acfbff-2911-4f69-ab4c-cf1acc33cd09)
-- 2022/12/03確認 [https://yuto.mystrikingly.com/blog/google-822c19e8-58bd-4196-aaa0-8f1468c58c30](https://yuto.mystrikingly.com/blog/google-822c19e8-58bd-4196-aaa0-8f1468c58c30)
-- 2022/12/03確認 [https://yuto.mystrikingly.com/blog/bc1a0dfca0d](https://yuto.mystrikingly.com/blog/bc1a0dfca0d)
-- 2022/12/03確認 [https://yuto.mystrikingly.com/blog/3967c75265e](https://yuto.mystrikingly.com/blog/3967c75265e)
+### Yuto (Removed)
+- 2022/12/03確認 Removed Post
+- 2022/12/03確認 Removed Post
+- 2022/12/03確認 Removed Post
+- 2022/12/03確認 Removed Post
 
 ## [荒らし共栄圏フォーラム](https://www.ctkpaarr.org/public/)
 - 2023/06/11確認 [https://www.ctkpaarr.org/public/d/539-subetenohuirutaringuwotu-po-chromebook-eraniyoruhuirutaringuwu-xiao-hua](https://www.ctkpaarr.org/public/d/539-subetenohuirutaringuwotu-po-chromebook-eraniyoruhuirutaringuwu-xiao-hua)
