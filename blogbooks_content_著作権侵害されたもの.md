@@ -37,6 +37,9 @@
 
 ## [YouTube](https://youtube.com)
 
+### マヨネーズ(mayonnaise) ([https://www.youtube.com/@mayonnaise0901](https://www.youtube.com/@mayonnaise0901))
+- 2023/06/18 [https://www.youtube.com/watch?v=GxkktXqxRUI](https://www.youtube.com/watch?v=GxkktXqxRUI)
+
 ### しみと愉快な仲間たち ([https://www.youtube.com/@yukainana_kamatati](https://www.youtube.com/@yukainana_kamatati))
 - 03/29確認 [https://www.youtube.com/watch?v=6J5VGDvgeB4](https://www.youtube.com/watch?v=6J5VGDvgeB4)
 - 03/30確認 [https://www.youtube.com/watch?v=8WqRBKG7CCs](https://www.youtube.com/watch?v=8WqRBKG7CCs)
