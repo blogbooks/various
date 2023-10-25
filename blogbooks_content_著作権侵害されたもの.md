@@ -81,14 +81,14 @@
 
 ## [tiktok](https://tiktok.com/)
 
-### aiueo_956 ([https://www.tiktok.com/@aiueo_956](https://www.tiktok.com/@aiueo_956))
+### [@aiueo_956](https://www.tiktok.com/@aiueo_956)
 - 2023/06/11確認 [https://www.tiktok.com/@aiueo_956/video/7224798493217410305](https://www.tiktok.com/@aiueo_956/video/7224798493217410305)
 
 ## [Google Site](https://site.google.com)
 
-### PK175のブログ ([https://sites.google.com/view/test9012123/home](https://sites.google.com/view/test9012123/home))
-- 2022/11/28確認 Removed Project
-- 2022/11/28確認 Removed Project
+### [PK175のブログ](https://sites.google.com/view/test9012123/home)
+- 2022/11/28確認 Removed Post
+- 2022/11/28確認 Removed Post
 
 ## [strikingly](https://www.strikingly.com/)
 
