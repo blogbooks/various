@@ -46,8 +46,8 @@
 
 ## [占いツクール](https://ulog.u.nosv.org)
 
-### N. [https://ulog.u.nosv.org/user/riinukunnkawaii](https://ulog.u.nosv.org/user/riinukunnkawaii)
-- 10/07確認 Removed Post
+### [N.](https://ulog.u.nosv.org/user/riinukunnkawaii)
+- 2023/10/07確認 Removed Post
 
 <!-- https://hatenablog.com -->
 
