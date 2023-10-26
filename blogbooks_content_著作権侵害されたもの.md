@@ -36,10 +36,10 @@
 - 03/30確認 Removed Project
 - 03/31確認 [https://scratch.mit.edu/projects/795044096/](https://scratch.mit.edu/projects/795044096/)
 
-### daikonoisii ([https://scratch.mit.edu/users/daikonoisii](https://scratch.mit.edu/users/daikonoisii))
+### [daikonoisii](https://scratch.mit.edu/users/daikonoisii)
 - 03/30確認 [https://scratch.mit.edu/projects/776193966/](https://scratch.mit.edu/projects/776193966/)
 
-### kuro_enpitu ([https://scratch.mit.edu/users/kuro_enpitu/](https://scratch.mit.edu/users/kuro_enpitu/))
+### [kuro_enpitu]([https://scratch.mit.edu/users/kuro_enpitu/])
 - 04/16確認 [https://scratch.mit.edu/projects/832925902/](https://scratch.mit.edu/projects/832925902/)
 
 <!-- ulog.u.nosv.org -->
