@@ -118,6 +118,11 @@
 
 ## [Google Site](https://site.google.com)
 
+### コジックスヘルプページ (Deleted Site)
+
+- 2023/05/24確認 Deleted
+- 2023/05/24確認 Deleted
+
 ### [PK175のブログ](https://sites.google.com/view/test9012123/home)
 
 - 2022/11/28確認 Deleted
