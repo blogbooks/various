@@ -118,7 +118,14 @@
 
 ## [Google Site](https://sites.google.com)
 
-### コジックスヘルプページ (Deleted Site)
+### chromebookブロック解除紹介サイト(nomi.ed.jp) (Deleted Site)
+<!-- https://sites.google.com/nomi.ed.jp/cb-block/ -->
+
+- 2023/07/21確認 Deleted
+- 2023/07/21確認 Deleted
+
+### コジックスヘルプページ(koto.ed.jp) (Deleted Site)
+<!-- https://sites.google.com/koto.ed.jp/kozikkusu/ -->
 
 - 2023/05/24確認 Deleted
 - 2023/05/24確認 Deleted
