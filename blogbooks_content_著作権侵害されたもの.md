@@ -116,7 +116,7 @@
 
 <!-- https://site.google.com -->
 
-## [Google Site](https://site.google.com)
+## [Google Site](https://sites.google.com)
 
 ### コジックスヘルプページ (Deleted Site)
 
