@@ -12,30 +12,31 @@
 
 ### [abareru--------](https://scratch.mit.edu/users/abareru--------/)
 
-- 10/25確認 [フライドなチキン](https://scratch.mit.edu/projects/874347383/)
-- 10/25確認 [にゃにゃにゃ](https://scratch.mit.edu/projects/858527786/)
-- 10/25確認 [キルコマンド](https://scratch.mit.edu/projects/872356183/)
-- 06/10確認 [学校のタブレットの規制解除方法　最新版](https://scratch.mit.edu/projects/852214145/)
-- 06/10確認 Deleted
-- 06/10確認 Deleted
+- 2024/02/01確認 [Untitled-4](https://scratch.mit.edu/projects/924706555/)
+- 2023/10/25確認 [フライドなチキン](https://scratch.mit.edu/projects/874347383/)
+- 2023/10/25確認 [にゃにゃにゃ](https://scratch.mit.edu/projects/858527786/)
+- 2023/10/25確認 [キルコマンド](https://scratch.mit.edu/projects/872356183/)
+- 2023/06/10確認 Deleted
+- 2023/06/10確認 Deleted
+- 2023/06/10確認 Deleted
 
 ### [NIKOPON123](https://scratch.mit.edu/users/NIKOPON123/)
 
-- 06/10確認 Deleted
+- 2023/06/10確認 Deleted
 
 ### [mnop321](https://scratch.mit.edu/users/mnop321/)
 
-- 06/10確認 Deleted
+- 2023/06/10確認 Deleted
 
 ### [haetataki](https://scratch.mit.edu/users/haetataki/)
 
-- 03/16確認 Deleted
-- 03/16確認 Deleted
-- 03/17確認 Deleted
+- 2023/03/16確認 Deleted
+- 2023/03/16確認 Deleted
+- 2023/03/17確認 Deleted
 
 ### [kore-chandao](https://scratch.mit.edu/users/kore-chandao/)
 
-- 03/30確認 Deleted
+- 2023/03/30確認 Deleted
 
 ### [konkoakira](https://scratch.mit.edu/users/konkoakira/)
 
@@ -92,11 +93,15 @@
 ### [しみと愉快な仲間たち](https://www.youtube.com/@yukainana_kamatati)
 
 - 03/29確認 Deleted
-- 03/30確認 [学校のパソコンでフォートナイトをする方法＃フォートナイト#裏技](https://www.youtube.com/watch?v=8WqRBKG7CCs)
+
+<!-- 判定不可なので撤去
+  - 03/30確認 [学校のパソコンでフォートナイトをする方法＃フォートナイト#裏技](https://www.youtube.com/watch?v=8WqRBKG7CCs)
+-->
 
 ### [ねこのすけ / @Nekonosuke_](https://www.youtube.com/@Nekonosuke_)
 
-- 2022/11/18確認(注: 下の「らいとしちゅー」の無断転載を無断転載したものらしいです...(闇)) [【学生必見】学校のPCの制限を解除する方法！！（全フィルター対応）※制限を戻す方法あり　※プロキシではなく完全にフィルターを無効化](https://www.youtube.com/watch?v=KJJTHLBYdGk)
+- 2022/11/18確認 ✓ 引用元が書かれたことを確認しました
+<!--(注: 下の「らいとしちゅー」の無断転載を無断転載したものらしいです...(闇)) [【学生必見】学校のPCの制限を解除する方法！！（全フィルター対応）※制限を戻す方法あり　※プロキシではなく完全にフィルターを無効化](https://www.youtube.com/watch?v=KJJTHLBYdGk) -->
 
 ### らいとしちゅー (Deleted Account)
 
